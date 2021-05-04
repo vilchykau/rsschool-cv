@@ -4,7 +4,7 @@
 
 ### **Contact Info**: tg https://t.me/donsgenii, e-mail donsgenii@gmail.com
 
-### **Eng.:** A2  
+### **Eng.:** A2 
 
 ### I'm a student of BSU, FAMCS. Now, I am on 2nd year and I started thinking about finding a job. But there is a problem. I didn't have experience working on serious projects, working in a team. Somebody can say, you are studying in the university, doing labs. But I recognize that it's not enough for starting a career. But anywhere, university and self-studying gave me some skills.
 
